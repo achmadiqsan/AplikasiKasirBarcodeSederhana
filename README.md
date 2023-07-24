@@ -26,3 +26,8 @@ Quote : "Maka sesungguhnya beserta kesulitan ada kemudahan, sesungguhnya beserta
 
 LOKASI FILE AGAR TIDAK ERROR : SIMPAN FILE CODING DI DRIVE D
 
+
+
+
+https://www.youtube.com/@achmadiqsan
+
